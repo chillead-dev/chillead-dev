@@ -1,1 +1,1 @@
-https://ru.pinterest.com/pin/9922061669948475/
+[Anime-eats-Azusa-waiting-for-new-members.jpg](https://postimg.cc/3kgFTzVp)

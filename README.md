@@ -1,1 +1,1 @@
-![Jokes Card](https://readme-jokes.vercel.app/api)
+https://ru.pinterest.com/pin/9922061669948475/
